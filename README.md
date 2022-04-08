@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @UltraLight95 (Light or Ultra Light are fine to call me by though though!)
+- 👋 Hi, I’m @UltraLight95 (Light or Ultra Light are fine to call me by though!)
 - 👀 I’m interested in Pokemon fangames!
 - 🌱 I’m currently learning code writing!
 - 💞️ I’m looking to collaborate on someone's project to help me learn! 😅
